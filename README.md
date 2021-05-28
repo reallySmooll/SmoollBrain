@@ -2,7 +2,7 @@
 - 👀 I’m interested in ur mum xDDDDDDDDDDDDDDDD
 - 🌱 I’m currently learning C# or at least trying to
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me: don't really know. I have a Twitter but don't post on there, a Discord but if you messaged me I probably wouldn't respond (but you still can SmoollBrain#7334)
+- 📫 How to reach me: don't really know. I have a Twitter but don't post on there, a Discord but if you messaged me I probably wouldn't respond (but you still can SmoollBrain#7354)
 and an IG but don't post on there.
 
 <!---
